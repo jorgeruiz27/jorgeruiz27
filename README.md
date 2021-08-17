@@ -1,0 +1,3 @@
+- 👋 Oi, Sou @jorgeruiz27
+- 👀 Tenho interesse na area de T.I.
+- 🌱 Tenho bacharelado em Ciencias da Computacao, poré fiquei muitos anos afastado da area, e estou tentando voltar para a area.
